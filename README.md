@@ -1,1 +1,1 @@
-Welcom to homepage of Xin Dong.
+Welcome to homepage of Xin Dong.
